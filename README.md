@@ -9,3 +9,6 @@ i almost never update my github and all of my bigger projects are private
 ↳ soon i will learn lua probably
 
 ꗃ៸⸝ contact me on discord: @nxgisa.exe
+
+ꗃ៸⸝ more about me:
+https://tinyurl.com/nxgisaexe
